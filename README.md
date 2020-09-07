@@ -1,0 +1,2 @@
+# yatharth-vataliya.github.io
+IT'S ALL ABOUT MY SKILLS, KNOWLEDGE AND INTELLIGENCE
